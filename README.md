@@ -1,8 +1,19 @@
 # GeeksforGeeks
-Difficulty: School 
-Piece of Cake 
+Difficulty: School </br>
+Piece of Cake 🍰
+
+`~
+~
+🧢
+:_swsweat_smile:
+
+🧢
 
 
+:heart: 
 
-
-<!--easy peasy not so complicated not so easy sweat over put on your thinking cap practice maeks man perfect
+<!--easy peasy 
+not so complicated
+sweat over 😰
+put on your thinking cap 🧢
+practice maeks man perfect

@@ -5,7 +5,7 @@ Piece of Cake 🍰
 `~
 ~
 🧢
-:_swsweat_smile:
+:_sweat_smile:
 
 🧢
 
